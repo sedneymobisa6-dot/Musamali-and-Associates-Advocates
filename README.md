@@ -1,2 +1,2 @@
-# S.O.Madialo-Advocates
-Official website for S.O.Madialo. Advocates — Law Firm in Kisii, Kenya
+# Musamali-Advocates
+Official website for Musamali Advocates — Law Firm in Kisii, Kenya
